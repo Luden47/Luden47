@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Me: Jude Bernard Anthony L. Ramil
 🔭 I’m currently working on my studies and doing some of my passion.<br>👯 I’m looking to collaborate on improving German tank reliability and increase power<br>🤝 I’m looking for help with German reunification to its former glory<br>🌱 I’m currently learning about modern military tactics<br>💬 Ask me about anything except German tank reliability<br>⚡ Fun fact I am a Sturmtiger.
 
 
