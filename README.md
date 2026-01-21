@@ -1,4 +1,4 @@
-![](https://www.dexerto.com/cdn-image/wp-content/uploads/2022/11/28/Raiden-Shogun-banner-worth-pulling-Genshin-Impact.jpg?width=1200&quality=100&format=auto)
+![]([https://www.dexerto.com/cdn-image/wp-content/uploads/2022/11/28/Raiden-Shogun-banner-worth-pulling-Genshin-Impact.jpg?width=1200&quality=100&format=auto](https://www.yourdecoration.co.uk/cdn/shop/files/pyramid-mpp50572-star-wars-stormtroopers-poster-40x50cm.jpg?v=1767620970))
 
 # 💫 About Me: Jude Bernard Anthony L. Ramil
 🔭 I’m currently working on my studies and doing some of my passion.<br>👯 I’m looking to collaborate on improving German tank reliability and increase power<br>🤝 I’m looking for help with German reunification to its former glory<br>🌱 I’m currently learning about modern military tactics<br>💬 Ask me about anything except German tank reliability<br>⚡ Fun fact I am a Sturmtiger.
