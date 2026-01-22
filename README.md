@@ -1,7 +1,7 @@
 ![](https://github.com/Luden47/Elective-Laboratories/blob/main/Laboratory%202/branding/RAMIL_Banner_Laboratory%202.png.png)
 
 # 💫 About Me: Jude Bernard Anthony L. Ramil
-🔭 I’m currently working on my studies and doing some of my passion.<br>👯 I’m looking to collaborate on improving myself, my skills, and talent <br>🤝 I’m looking for help with designing, patience, and of course, German engineering tanks.<br>🌱 I’m currently learning about the fundamentals of education and the 21st Century IT Skills<br>💬 Ask me about anything except being patient, who is my waifu, and German tank reliability<br>⚡ Fun fact I am both a student and a Sturmtiger tank artillery.
+🔭 I’m currently working on my studies and doing some of my passion.<br>👯 I’m looking to collaborate on improving myself, my skills, and talent.<br>🤝 I’m looking for help with designing, patience, and of course, German engineering tanks.<br>🌱 I’m currently learning about the fundamentals of education and the 21st Century IT Skills.<br>💬 Ask me about anything except being patient, who is my waifu, and German tank reliability.<br>⚡ Fun fact I am both a student and a Sturmtiger tank artillery.
 
 
 # 💻 Tech Stack:
